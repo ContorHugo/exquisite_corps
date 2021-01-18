@@ -10,3 +10,7 @@ With his knife, his wife gifted him for his previous birthday, he opened the let
 The letter started as followed :
 
 * **If you receive this letter, this means you are the chosen one**
+
+The Chosen one of what ? He asked himself. Maybe was he the king of goats that the prophecy predicted ?
+
+He erupted : **BAAAAAAAAAAAAAH**. And all the goats came running to him.
